@@ -1,4 +1,4 @@
-# Welcome Pocket Money Industries
+# Pocket Money Industries
 
 See our current enterprise:
 
